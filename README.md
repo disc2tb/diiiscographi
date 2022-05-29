@@ -1,3 +1,1 @@
-- 👋 hi, i'm disco
-- i'm coding on python, c++ and java
-- 🌱 currently i maintain: nothing
+😈🤙🤙🤙🤙🤙
